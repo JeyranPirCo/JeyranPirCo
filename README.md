@@ -1,4 +1,4 @@
-- 👋 Hi, I’m JeyranPiraliyeva Co
+- 👋 Hi, I’m JeyranPiraliyeva
 
 
 <!---
